@@ -1,0 +1,1 @@
+# in-msft-open-source-meetup-manual
